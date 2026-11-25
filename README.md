@@ -8,9 +8,9 @@ Entry for the make.fun bounty [One Star, Written in Sap](https://make.fun/bounty
 
 ## The review
 
-> One star. He bought me for 'good energy' and parked me in a sunless corner. I've been photosynthesizing resentment for six months.
+> One star. Sold as 'low maintenance.' He hasn't repotted me in two years. The pot is now a suggestion.
 
-(130 characters.)
+(101 characters.)
 
 ## How it works
 
